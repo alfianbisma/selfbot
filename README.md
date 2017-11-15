@@ -1,0 +1,2 @@
+# xbot
+PROTECT AND SELF
